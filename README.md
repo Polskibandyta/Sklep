@@ -1,0 +1,2 @@
+# Sklep
+Badzior rozpierdala
